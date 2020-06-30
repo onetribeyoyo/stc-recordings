@@ -47,4 +47,6 @@ I don't know what to say.... enjoy?
 
 Anyone recall where/when this show happened?
 
+- Todd: "may be our gig at the Mades-Johnstone Center"
+
 ------
