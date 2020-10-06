@@ -49,4 +49,19 @@ Anyone recall where/when this show happened?
 
 - Todd: "may be our gig at the Mades-Johnstone Center"
 
+Todd and Eddie are jammin together in their preferred version of heaven.
+
+1. Natalie
+2. "Eruption / Running with the Devil" (~3:30)
+3. Mary Jane
+4. Rock Jam
+5. Keep on Loving You
+6. She's So Cold I
+7. She's So Cold II
+8. Dirty Deeds
+9. Whole Lotta Rosie
+10. Let It Show
+11. Spirit of the Radio
+12. Good Night Now
+  
 ------
