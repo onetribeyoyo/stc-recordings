@@ -25,16 +25,20 @@ Was this their first gig?
 
 Sounds like it was recorded in a gym?  Yep, it was recorded in a gym.
 
-1. Hello There
-2. Journey to Aazgaard (sic)
-3. Two Tickets to Paradise
-4. Come Together
-5. Love Is All Around
-6. China Grove
-7. Time Warp
-8. Iron Man
-9. Mr. Rock And Roll
-10. Beth
+Todd and Eddie are jammin together in their preferred version of heaven.
+
+1. Natalie
+2. Eruption / Running With The Devil (~3:30)
+3. Mary Jane
+4. Rock Jam
+5. Keep on Loving You
+6. She's So Cold I
+7. She's So Cold II
+8. Dirty Deeds
+9. Whole Lotta Rosie
+10. Let It Show
+11. Spirit of The Radio
+12. Good Night Now
 
 ------
 
@@ -53,26 +57,22 @@ I don't know what to say.... enjoy?
 ## Azgaard at the Mades-Johnstone Center ##
 
 <audio controls>
-  <source src="azgaard.mp3" />
+  <source src="azgaard_at_mades-johnstone.mp3" />
 </audio>
 
 Anyone recall where/when this show happened?
 
 - Todd: "may be our gig at the Mades-Johnstone Center"
 
-Todd and Eddie are jammin together in their preferred version of heaven.
+1. Hello There
+2. Journey to Aazgaard (sic)
+3. Two Tickets to Paradise
+4. Come Together
+5. Love Is All Around
+6. China Grove
+7. Time Warp
+8. Iron Man
+9. Mr. Rock And Roll
+10. Beth
 
-1. Natalie
-2. Eruption / Running With The Devil (~3:30)
-3. Mary Jane
-4. Rock Jam
-5. Keep on Loving You
-6. She's So Cold I
-7. She's So Cold II
-8. Dirty Deeds
-9. Whole Lotta Rosie
-10. Let It Show
-11. Spirit of The Radio
-12. Good Night Now
-  
 ------
